@@ -1,2 +1,2 @@
-# ChiranthManjunath.github.io
+# Chiranthmanjunath.github.io
 
